@@ -25,3 +25,31 @@ to eat dirt
 
 ### LDL is high on Keto
 Do advance lipid test and in Keto we have good LDL.
+
+### Natural antibiotics 
+Garlic, clove, thyme, sage, oregano oil wormwood extract blend. Awesome combination
+Radishes.
+
+### Stressful day
+Stressful day you need salt to regulate that
+
+### Dizziness when stand up to fast
+Adrenal gland not adapting to the gravitational stress best remedy for that is B1 or low blood pressure
+if you add that salt it might improve your gland and blood pressure. Sometimes electrolytes 
+
+### High protein in urine
+Definitely a Kidney problem. But if you are eating too much protein in the diet and it can create more 
+protein in the diet and the urine becomes dark and foamy(protein reacts with oxygen).
+more important nutrient for kidney is potassium 
+
+### Vitamin A deficiency 
+You can't see in the dark or sinus issues
+
+### Aging spots
+Vitamin C deficiency. Lemon with pile and seeds (immediately cut it and use it) on stevia and 
+electrolyte powder blend them to get 5 times more vitamin C daily and it helps your skin //TODO dry skin
+and sauerkraut.
+
+### Any problem with eyes 
+Like scratch or pressure use **oculotrophin pmg** take one before bed. Intermittent fasting for improving
+eyes and floaters

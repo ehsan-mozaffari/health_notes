@@ -269,3 +269,80 @@ Without sleep, you gonna more anxiety, worry, stress mode. So, don't get 7 hours
 5. Stevia 
 6. If you want to consume it as a meal add coconut oil (one tablespoon)
 7. Drink some of it with meal and one hour later drink the rest
+
+
+## Vitamins
+* ### Vitamin D
+It is not really a vitamin it is a hormone. It's the most important vitamins
+  1. Vitamin D receptors are almost in every single cell
+  2. It penetrates the cell membrane (because it is fas soluble) and goes right to the center of the cell
+     calls the nucleus
+  3. Genomes are influence by vitamin D (3 to 4 percent)
+  4. Not sleep at night if you deficient in vitamin D. vitamin D helps the circadian rhythm and it helps
+     super charismatic nucleus in the brain. So, sleep apnea or insomnia or get up in the middle of
+     the night because you have high cortisol like 2 AM vitamin D can help you. Taking vitamin D before bed
+  5. Majorly influences the cognitive part of the brain that helps you remember things and helps you
+     concentrate. In Alzheimer, Parkinson and dementia there is always the vitamin D deficiency
+  6. Mood is greatly influenced by vitamin D. In winter you have more depression, anxiety,get the blues
+     sadness, because of not exposed to the sun. So, it could improve your mood and memory
+  7. Deficiency of vitamin D cause you hair is going to be very dry and brittle and not produce the
+     numbers of hair because the growth of hair is dependent to vitamin D. So, early grain, stress hair loss
+     , menopause hair loss, autoimmune disease like Alopecia (inflammatory disease = vitamin D)
+  8. //TODO check if vitamin D is related to skin dryness 
+  9. Is natural ant-inflammatory
+  10. Psoriasis in scalp if you deficient in vitamin D or even Eczema in your skin
+  11. People that get acne are always low in vitamin D. It can decrease inflammation in your skin.
+  12. Prevent Vitiligo (Lack of pigment on skin)
+  13. Deficiency: Risk for getting skin cancer like Melanoma
+  14. Deficiency: Sinus has vitamin D receptors so, if you have stuffy nose, sinusitis. Another benefit
+      is to protect you against viruses in nasal passages
+  15. Thymus gland(on top of heart) is a training camp for T cells. As you age the gland shrinks so does
+      the immune system. So the Thymus gland desperately needs vitamin D to help every part of 
+      immune system(B cells and T cells and every other parts)
+  16. Helps to control the cytokine storm. It helps to control several autoimmune diseases and self attack
+      that is why is good for autoimmune diseases like allergy.
+  17. For eyes. Prevent Cataract, Macular degeneration, glaucoma and specially dry eyes
+  18. For thyroid. Prevent Hashimoto (autoimmune)
+  19. Vitamin D is the best natural remedy for any autoimmune problem because it drops inflammation.
+      Prevent Grave disease (autoimmune)
+  20. Deficient in vitamin D you are not going to drive Calcium into the bone. So, we need vitamin D
+      to regulate that calcium. So, if you deficient on vitamin D before you born you will get
+      bone malformation later in life or even earlier in life. For example your teeth. If you are 
+      a person who his teeth are not healthy you probably have vitamin D deficiency. For example the
+      malformation on back or even flat feet or rickets or even wearing braces (ortodency).
+      **So in the pregnancy or breastfeeding ensure you get enough vitamin D for yourself and baby**
+  21. Hot flashes(the sudden feeling of warmth in the upper body. most intense over the face, neck and chest)
+  22. Natural sources: Butter(Lots of D + K2). You have to get it from cod liver oil. Sun 10 min 1000 if 
+      you younger
+  24. Asma could quickly be improved in children if they are out playing under sun. Grate for lung 
+      infections pneumonia, bronchitis any type of inflammatory condition. Good for COPD and lung cancer
+  25. Really good for muscle recovery. Deficiency: Muscle cramps because it helps control calcium and
+      calcium involved in contraction and relaxation of muscles. D + Magnesium work together and
+      Magnesium is very important in muscle physiology. Achy or cramping or weak muscles
+  26. Adrenal glands: Cortisol work with vitamin D so if your cortisol is high you get much deficiency 
+      in vitamin D so the Arsenal gland need it.
+  27. Pancreas: The eyelids of langerhan makes insulin with vitamin D
+  28. Heart: coronary heart disease huge relation with low vitamin D
+  29. Every person that has blood pressure is low in vitamin D. Best thing to drop blood pressure.
+  30. Huge relation between fatty liver or hepatitis(inflammation in liver) with low vitamin D.
+  31. Any inflammation in gut can be improved with vitamin D. Irritable bowl syndrome, ulcerative colitis,
+      crohn's and diverticulitis.
+  32. Low in vitamin D could prostate enlarge, problems with ovary and testicles.
+  33. Help for joints: stiffness, pain, inflammation and specially helps with all **itis** like 
+      Arthritis, rheumatoid and osteo
+  34. Low in vitamin D can cause pain in bone like back pain(It goes after consuming vitamin D).
+      Pressure your shin or sternum if you have pain it means that you are deficient in vitamin D.
+  35. It absorbs very well with vitamin K2. D3 + K2
+  36. Growing hair
+  37. You can't get vitamin D from the diet. Get it from the sun or supplement
+  38. Average person needs minimally 10000 ius per day
+  39. If your skin is slightly darker or dark or overweight the need goes up.
+  40. Improve not awake at night
+  41. Helps Jet lag 
+  42. Reset sleep cycles for example moving to another country
+  43. Help stress
+
+
+
+
+## Minerals
