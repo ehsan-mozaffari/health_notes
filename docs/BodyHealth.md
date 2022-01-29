@@ -355,7 +355,7 @@ It is not really a vitamin it is a hormone. It's the most important vitamins
      some type of atrophy in the stomach or lacking hydrochloric acid in stomach or gastritis or
      ulcer of stomach or celiac or crohn's or irritable bowl syndrome can block the absorption of B12.
   8. Fix the lack of stomach acid by using betaine hydrochloride (like Apple Cider Vinegar) 
-     after the age of 55 and you will have more energy of B12
+     after the age of 55, and you will have more energy of B12
   9. 2.2 to 2.8 mcg of B12 for average person
   10. Easy to get it from the diet: 
       * animal liver + kidney
@@ -364,7 +364,7 @@ It is not really a vitamin it is a hormone. It's the most important vitamins
       * Beef
       * Fish
       * Chicken 
-      * Fermented products (Kimchi, sourkrout, cheese)
+      * Fermented products (Kimchi, sauerkraut, cheese)
       * Insects
   11. Symptoms:
       * Pale skin(not be able to make blood cells) or sometimes a little yellow
