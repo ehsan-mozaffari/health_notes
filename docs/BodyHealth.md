@@ -342,7 +342,41 @@ It is not really a vitamin it is a hormone. It's the most important vitamins
   42. Reset sleep cycles for example moving to another country
   43. Help stress
 
-
+* ### Vitamin B12 
+  1. Methylcobalamin: Natural source
+  2. Cyanocobalamin: Syntactic source (Bad: More complex)
+  3. Involved making DNA
+  4. Involved making myelin sheath (the coating around the nerves)
+  5. Involved making Red blood cells
+  6. Deficiency causes irreversible damage to nervous system
+  7. Deficiency usually caused not by not consuming B12 in food but mal-absorption or not absorption of 
+     B12 because it needs an Intrinsic factor (carrier transportation protein) to be consumed.
+     If you have auto-immune disease you can get Pernicious Anemia. The reason of deficiency is usually
+     some type of atrophy in the stomach or lacking hydrochloric acid in stomach or gastritis or
+     ulcer of stomach or celiac or crohn's or irritable bowl syndrome can block the absorption of B12.
+  8. Fix the lack of stomach acid by using betaine hydrochloride (like Apple Cider Vinegar) 
+     after the age of 55 and you will have more energy of B12
+  9. 2.2 to 2.8 mcg of B12 for average person
+  10. Easy to get it from the diet: 
+      * animal liver + kidney
+      * clams or other seafood
+      * Sardines 
+      * Beef
+      * Fish
+      * Chicken 
+      * Fermented products (Kimchi, sourkrout, cheese)
+      * Insects
+  11. Symptoms:
+      * Pale skin(not be able to make blood cells) or sometimes a little yellow
+      * Feel constant fatigue, weak, sleepy, drowsy no matter how much you try to get some sleep
+        (because of low oxygen your metabolism can't work)
+      * Have ulcer in your mouth or shiny swollen red tongue
+      * Cognitive issues. Be severely(very very) depressed, anxiety and memory problems, paranoia,
+        delusional
+      * Nerve damage: Not creating myelin, so you start getting short-circuiting problem in 
+        the nervous system and it shows up as peripheral neuropathy specially in feet
+      * Blurred vision: because retina connected to the nerve to the brain. Sudden need for glasses
+      * Fast pulse rate: you can't make blood cells and not have oxygen
 
 
 ## Minerals
