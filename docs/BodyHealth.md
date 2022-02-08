@@ -56,6 +56,14 @@ function of the brain.
 * ### Symptoms
   1. Get depression
   2. Be apathetic (Like you don't care anymore)
+* ### Hyperthyroidism
+    * Don't take Iodine
+    * Selenium
+    * Zinc
+* ### Hypothyroidism
+    * Take Iodine in the form of Sea Kelp
+    * Selenium
+    * Zinc
 
 ----------------------------------------
 ## Kidneys
@@ -68,15 +76,7 @@ function of the brain.
 * ### Good
     1. Consuming a lot of antioxidant like big salad
     2. No sugar and carbs
-
-1. ### Hyperthyroidism
-    * Don't take Iodine
-    * Selenium
-    * Zinc
-2. ### Hypothyroidism
-    * Take Iodine in the form of Sea Kelp
-    * Selenium
-    * Zinc
+    
 
 ----------------------------------------
 ## Stress
