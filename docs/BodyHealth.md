@@ -38,6 +38,8 @@ Get high quality vitamin E and rub that.
 10. Over-washing hair: and don't clean with sulfate shampoo
 11. What: Sea kelp, use sulfate fee shampoo, use conditioner, anti fluoride and chlorine filter of water. 
     Lower the stress, stop smocking
+12. Reduce 5 alpha reductase: Eat pumpkin seeds, Green tea (inhibitor of DHT), Zinc
+13. 
 
 
 ----------------------------------------
@@ -80,7 +82,46 @@ function of the brain.
 
 ----------------------------------------
 ## Stress
+`Stress is too alkaline`. Reducing stress to zero is not healthy for a long period of time. You can't live without stress. 
+Our body make himself stronger by the stress (Bodybuilding). When you perceive stress in your brain it goes through 
+HPA (Hypothalamus Pituitary Adrenal) and it comes out the Cortisol. Now your body can start adapting the stress
+with the help of Cortisol. So, Cortisol goes through these organs and adjust the organs to deal with stress.
+Another name of Cortisol is Glucocorticoid because it makes sugar from everything and lead you to diabetes.
+If you have too much cortisol you start developing fat specially in your liver and your liver becomes fatty and
+your liver spills over into the gut and as a result you have a belly fat. Stress is controlled by 
+the Gaba neurotransmitter. Gaba is like a turn off switch. 50% of synapses in your brain are 
+a combination of Glutamate and Gaba receptors and only 5% are dopamine and serotonin. So, sustained stress sometimes
+instead of burning down the Adrenal Gland it burns down the Gaba neurotransmitter.
 
+### Side effects (sustained stress)
+1. Sustain stress burns down a lot of your organs
+2. Cortisol turned off the Immune System (Makes you susceptible to viral infection). 
+Because of that if some people stressed out they get sick
+3. Sustained stress can create atrophy (Shrink) to the lymph nodes and the thymus
+4. Develop an ulcer in the stomach
+5. Splashing stomach Acid and causing Gerd
+6. More gastric acids in the stomach (Gastritis): because the entire digestive system is controlled 
+by parasympathetic nervous system
+7. Depletes your B1, Ca, K+(potassium), H+ (Hydrogen Ion). PH that's the Power of Hydrogen Ion.
+8. In stress you lose H+ (is acidic) and become too alkaline
+9. Stress makes you too alkaline (Garm)
+10. Symptom of Alkalosis(To alkaline): 
+Muscle twitching, Hyperventilation(rapid or deep breathing, usually caused by anxiety or panic), Cramping, Anxiety
+11. Stress effects the heart by increasing Blood Pressure, Heart Rate, creating a constriction of the coronary artery.
+12. Stress effects the Blood Sugars by turning things (Fat, Protein, Ketones, ...) to sugar. That's why the high level
+of stress can make a person diabetic even though you are not eating sugar.
+13. Have a fatty liver
+14. Have a belly fat
+15. The tone of the muscles become very very rigid and tight, so, you get muscle spasm
+16. High level of Cortisol leads to Hyperventilate and you think you are not getting oxygen but you are getting too much
+Oxygen and you passed out and not enough CO2 locks up the Oxygen absorption ability.
+17. The brain destroys certain parts of your brain and it affects sleep circadian level with sleep 
+(If you can't sleep or stay up at night it might be the cause of stress)
+
+### Remedies
+1. Gaba inhibitor: Lemon Balm tea 3 times in a day (Feranjmeshk). It increases the Gaba and 
+as a result tranquility(peaceful serine unshaken unworried). It helps you be calm and anti-anxiety, anti-depression by 70%.
+It improves insomnia. You can get quick effect right away.
 ----------------------------------------
 ## Inflammation
 1. Stinging nettle root: Arthritis, nerve inflammation
@@ -88,6 +129,8 @@ function of the brain.
 
 ----------------------------------------
 ## Digestive system
+The entire digestive system is controlled by parasympathetic nervous system 
+(Rest and digest the opposite of stress or fight or flight).
 ### Constipation (Incomplete digestion)
 * Lack of stomach acid to break down protein
 * Pancreas don't produce enzymes
@@ -380,3 +423,44 @@ It is not really a vitamin it is a hormone. It's the most important vitamins
 
 
 ## Minerals
+
+
+## Diagnose using your Body
+
+### Face
+#### Balding (Too much DHT)
+DHT is a powerful form of Testosterone. 5 alpha reductase converts Testosterone to DHT. 
+5 alpha reductase inhibitors:
+1. pumpkin seeds
+2. Zinc
+3. Green tea
+#### Eyebrow outer parts loss (Birone abro) (Hypothyroid) 
+Slow thyroid with Iodine
+#### Blood shot eyes (Liver) 
+Because stress on liver or especially if it is red on the inside of your eyelids you have a blood sugar problem.
+#### Darkened circles under eyes (Pigment problem caused by Insulin Resistance(Sugar issues))
+Even in their armpits or their neck they have darkened circles. Go to Keto and intermittent fasting diets. 
+#### Bag beneath/on top of eyes (Insulin resistance(Sugar issue) or Kidney)
+#### Oily Skin (Too high Androgen)
+Need Zinc to regulate it for male and for female they have polycystic ovarian, facial hair, acne
+#### Cataract (High carb diet)
+Deficient in vitamin A, B1. NAC drop
+#### Red chicks (Cushing syndrome, High level of Cortisol)
+Garlic, Oregano, thyme, worm wood extract, sage + Probiotics
+#### Gray or brownish pigmentation (Chicks or) (Estrogen problem)
+Called Melasma. Melasma is an estrogen problem. 
+Remedy: Dim or consume more cruciferous foods or iodine in a form of sea kelp can help balance estrogen
+#### Peeling or flakey skin, dermatitis, dry eyes, dry hair (Low in Omega3 and high in Omega6)
+1:1 ration of Omega3 and Omega6. More Cod liver oil, fatty fish, Algae (for vegan) 
+High in Omega6: 
+1. Chicken 
+2. Fired food
+3. Nuts
+4. Grains
+#### Blackheads (Joshe sar siyah) (Simpel vitamin D deficiency)
+Gets more sun, or take it as supplement
+#### Cracked corner of mouth, Chap lips and Cracked heels (B2 deficiency)
+B2 prevent the lever from becoming damaged. Also can cause chap lips and cracked heels. Consuming too much 
+flour like breads, pasta, cereals, crackers
+#### Cold sour (Herpes simplex 1 virus)
+Eat something anti-viral like Garlic, Zinc, prolonged fasting

@@ -53,3 +53,10 @@ and sauerkraut.
 ### Any problem with eyes 
 Like scratch or pressure use **oculotrophin pmg** take one before bed. Intermittent fasting for improving
 eyes and floaters
+
+### Hemorrhoids
+Vitamin C complex related issues. Home remedy: Collinsonia root(Richweed, Stone root, Knob root)
+
+### Hiccups 
+Too much Oxygen can cause of Hiccups. Laughing excessively, breathing too much or getting excited of something
+So, you get too much oxygen and need for CO2 to work. Keep your breath for time.
