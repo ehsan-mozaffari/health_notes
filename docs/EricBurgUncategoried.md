@@ -60,3 +60,17 @@ Vitamin C complex related issues. Home remedy: Collinsonia root(Richweed, Stone 
 ### Hiccups 
 Too much Oxygen can cause of Hiccups. Laughing excessively, breathing too much or getting excited of something
 So, you get too much oxygen and need for CO2 to work. Keep your breath for time.
+
+### Being calm when stressed with high cortisol
+1. Balance stresses both mentally and physically. So, Balance that with physical work (around the house, Gym) better
+to do it outside in nature. So, more physical work is very very important.
+2. Stay in action (moving) because when you stressed you paralyzed to counter that
+3. Vitamin B1 Thymine is the most important one to counter the stress. Impact is significant. Take Nutritional yeast
+in tablet when I am stressed it is just a switch instantly
+4. Magnesium & Potassium. Is found in vegetables. Having a big salad every day is very important to counter the stress.
+5. Vitamin D is a necessary vitamin to lower your stress and increase your mood. Specially in depression
+or depressed mode (paralyzed) and it comes from vitamin D. It can act as Cortisol without side effects and also
+get rid of inflammation
+6. Get Keto and Intermittent fasting. They increase the parasympathetic nervous system.
+7. Taking a good supplements with good adaptogens
+8. Breath. When you under stress your breath turns off
